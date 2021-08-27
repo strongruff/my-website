@@ -2,4 +2,4 @@
 
 ## Urek is gay
 
-# I am lazy so no 
+# I am lazy so no website 
